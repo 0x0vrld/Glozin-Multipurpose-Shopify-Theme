@@ -1,0 +1,1 @@
+# Glozin - Glozin - Multipurpose Shopify Theme by [Next_Sky]([https://](https://nextsky.co/))
